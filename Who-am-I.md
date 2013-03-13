@@ -26,7 +26,7 @@ So where do I start telling about myself?
 
 
 
-**If even one of the above is your reply, there will be a high change of
+**If even one of the above is your reply, there will be a high chance of
 rejection! **
 
 
