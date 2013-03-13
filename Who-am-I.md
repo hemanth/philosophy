@@ -31,7 +31,7 @@ rejection! **
 
 
 
-So basically **most of us **would end up preparing for this question, may be
+So basically **most of us** would end up preparing for this question, may be
 analysis paralysis or may be even getting some help online.
 
 
@@ -47,7 +47,7 @@ here, but rather experimenting on my own experiences, which might be wrong.
 
 
 There is a huge difference between **What we think we are, What other think we
-are and What we are in reality. **
+are and What we are in reality.**
 
 
 
