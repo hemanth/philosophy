@@ -1,0 +1,4 @@
+philosophy
+==========
+
+Experiments with life.
