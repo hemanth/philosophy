@@ -1,4 +1,1 @@
-philosophy
-==========
-
-Experiments with life.
+**Random half boiled thoughts in my mind!**
